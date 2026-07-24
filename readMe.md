@@ -143,4 +143,4 @@ The University of Texas at Austin
 
 Electrical & Computer Engineering Honors + Business Honors
 
-LinkedIn: https://www.linkedin.com/in/ronit-verma-b0a80a383/
+LinkedIn: www.linkedin.com/in/ronver1
